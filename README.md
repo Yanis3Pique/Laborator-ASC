@@ -1,2 +1,1 @@
 # Laborator-ASC
-# Laborator-ASC
